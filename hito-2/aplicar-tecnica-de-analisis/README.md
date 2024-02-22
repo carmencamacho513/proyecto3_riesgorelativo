@@ -1,0 +1,2 @@
+# 🤓 Aplicar Técnica de Análisis
+
